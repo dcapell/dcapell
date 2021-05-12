@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @dcapell
+- 📫 dani.capell@gmail.com
